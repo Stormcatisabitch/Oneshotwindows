@@ -1,5 +1,5 @@
-# Oneshotwindows
+# Oneshot Windows
 OneShot themed Windows 10 mod
 All rights go to their respective owners
-If you are a owner of anything in this mod please contact me if you would like it removed
+If you are a owner of anything in this mod please contact me if you would like it removed 
 OneShot belongs to Future Cat and Windows belongs to Microsoft
